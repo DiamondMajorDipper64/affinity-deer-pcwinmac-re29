@@ -1,4 +1,4 @@
-# 
+# Professional Affinity Designer filters for Mac OS | Elite Affinity Designer filters for PC Windows. Featuring version-history and pen-tool — optimized for maximum performance on every platform.
 
 
 
